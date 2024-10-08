@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Manishdesai
-- 🌱 I’m currently learning I am a student and currently study master's in the Computer Applications at Gujarat Vidyapith, Ahmedabad
+- 🌱 I’m currently learning Imaster's in the Computer Applications at Gujarat Vidyapith, Ahmedabad
